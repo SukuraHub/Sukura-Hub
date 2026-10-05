@@ -1,1 +1,0 @@
-# VAULT-HUB-TEAM
